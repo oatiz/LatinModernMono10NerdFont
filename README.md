@@ -1,0 +1,1 @@
+# LatinModernMono10NerdFont
